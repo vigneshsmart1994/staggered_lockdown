@@ -75,6 +75,39 @@ Few other extensions:
 3. We could also have shops selling essential services to enfore the colour code check and not provide goods to people not following the color code.
 4. The distribution/assignment of colour codes could also vary across different regions of the country based on severity of the spread. If the COVID-19 rates are decreasing, we could still have this color code scheme but now we could have distribution with lesser set of colour codes. Instead of 5, we could have 3 color codes and reassign the new set to the people. This would mean more people coming out when we see no resurgent/spike of cases.
 
+
+**My Opinion :
+
+1. Recently have nocticed that peoples are gathering in rationshops to get the compliments given by the govt. Eventhough govt has ordered that every goods should be delivered in doorsteps thats not happening!!! Whats the use of curfew then if govt officials are encouraging these kind of stuffs. Its known that its the difficult task but what are the counter steps that has to be taken ?
+
+2. What's the use of giving the compliments goods to the tax payers who are not affected due to the lockdown as govt has instructed that they should be paid their monthly wages eventhough they are not working. First we have to think about the non tax payers who are normally depends on their daily wages. Who also doesnt have any savings !!! 
+
+**How can we resolve those:
+
+1. Everyone's needs must be delivered at their door steps.
+
+**But who will do this:
+
+1. We must ask the youngsters to volunteer to acomplish those.
+
+**Ok ! But why youngsters ?
+
+1. As per the affected and loss of life stats the probality of younsters loss of life is less which means that they have good immunity power to overcome covid-19.
+
+2. Youngsters who is formally known as (Pullingo's) are thrieving to roam out since they are used to it. Who will volunteer themselves as we have seen them in action on chennai's Flood.
+
+**Sounds Good !! But how can we control/structure them  ?
+
+1. There are Policemens who are working to take control of covid-19 . Each and every police station should be reported by a 100 Volunteers who wil cover the jury section(perimeter) of the police station they are reporting to. And Volunteers task wil be managed by policemens.
+
+**What if they got infected by covid-19 ?
+
+Lets walk through the below example :
+   Lets assume that 10000 peoples are there in a jury section of a police station. And daily 1000 people are out to buy necessary goods in which 5 peoples are affected by covid-19. Before the own realisation that they have been affected by the virus they used to go daily which can be spreaded to others and get multiplied. in day 14 the count of affected people will be 400. A count that is difficult to manage to get the track of virus. But we can always have the track of those volunteers on the basis of daily medical checkup. 
+
+
+
+
 **DISCLAIMER !!**
 
 This is just a thought that I wanted to share across with an objective to curtail people movement to avoid the COVID-19 virus spread and move towards a safer India. Its purely upto to the government and the concerened authorities to take this up, evaluate the feasibility, fine tune and adopt if they feel this could work.
